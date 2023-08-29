@@ -1,9 +1,7 @@
-### Hi there 👋
+### Hi there 👋  I'm Ambroise Muhayimana Coder
 
 
 - 👯 I’m looking to collaborate on same one  wishes
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
 - 📫 How to reach me: muhayimana21@gmail.com|| +250 786255860
 - 😄 Pronouns: His/he
 - ⚡ Fun fact: Music
